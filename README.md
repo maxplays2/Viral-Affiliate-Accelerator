@@ -1,7 +1,7 @@
 # Viral Affiliate Accelerator Software Project and Review OTO
-### The Viral Affiliate Accelerator is a free video course designed to teach you how to build powerful viral marketing funnels that scale your results effortlessly. Discover How To Ethically Force 100's Of People To Send You Unlimited VIRAL Traffic, Leads And Commissions! All of that while building your Primary Businesss on Autopilot!
+**The Viral Affiliate Accelerator is a free video course designed to teach you how to build powerful viral marketing funnels that scale your results effortlessly. Discover How To Ethically Force 100's Of People To Send You Unlimited VIRAL Traffic, Leads And Commissions! All of that while building your Primary Businesss on Autopilot!**
 
-### The Viral Affiliate Accelerator is a video course where you’ll learn how to create powerful marketing systems that leverage the efforts of 100s or even 1,000s of people. Instead of relying solely on your own resources, you’ll build a system that works for you 24/7 helping you scale your results effortlessly.
+**The Viral Affiliate Accelerator is a video course where you’ll learn how to create powerful marketing systems that leverage the efforts of 100s or even 1,000s of people. Instead of relying solely on your own resources, you’ll build a system that works for you 24/7 helping you scale your results effortlessly.**
 
 ## Inside the course, you’ll learn:
 - The basics of viral marketing and why it outperforms traditional "linear" marketing methods.
